@@ -1,6 +1,7 @@
-- 👋 Hi, I’m @PreGirl
-- 👀 I’m interested in python and piano and drawing and learning languages
-- 🌱 I’m currently learning spanish and python
-- 📫 How to reach me discord name: pretty_girl#9911
+discord = Rollina ! أـوجـاع 🥀🔞#5709
+               
+               chilling alone and listening to songs on my spotify
+https://open.spotify.com/playlist/6EwWFctxK0rgnbF7TowIAh?si=61302e4de636468a&pt=4d6f988a123df2531ce0c10cd0d1de57
 
-
+</3 can't we skip to the good parts ?
+                             honestly, im lucky witout someone
